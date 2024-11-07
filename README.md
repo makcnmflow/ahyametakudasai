@@ -1,2 +1,2 @@
 # ahyametakudasai.github.io
-just a repository for my site
+this is not just a site this is life🤤😍🥰😘🥵🔥🔥
